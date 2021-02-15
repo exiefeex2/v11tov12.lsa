@@ -1,1 +1,1 @@
-# v11tov12.lsa
+ÇALDA GÖR EBENİ
